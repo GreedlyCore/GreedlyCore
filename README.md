@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Anton Polyakov
+- 👋 Hi, I’m Anton Polyakoff
 - 👀 I’m interested in FinTech, Life long learning, Some games etc
 - 🌱 I’m currently learning Java for Android development
 - 💞️ I’m looking to collaborate on SomeANdroidGames

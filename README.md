@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Anton Polyakoff
 - 👀 I’m interested in  .
-- 🌱 I’m currently learning life
+- 🌱 I’m currently enjoying life
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me - telegram @enirkhr
 ✨ special ✨ ✨ special ✨ ✨ special ✨
